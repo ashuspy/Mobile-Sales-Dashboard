@@ -71,7 +71,7 @@ To design a dynamic and visually appealing dashboard that helps sales teams and 
 
 **Ashu Kumar**  
 📧 aashu.official007@gmail.com  
-🔗 [GitHub](https://github.com/ashu) | [LinkedIn](#)
+🔗 [GitHub](https://github.com/ashuspy) | [LinkedIn](#)
 
 ---
 
